@@ -1,6 +1,6 @@
 # 1024新地址2022入口
 
-### <a href="https://github.com/xinfue/dunp/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
+<hr/> <a href="https://github.com/siguaha/najh/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a><hr/>
 
 1024新地址2022入口
 ，即便没有多少天赋，那也可以凭借自己的努力熬炼肉身，达到淬体境还是完全没有问题的。
